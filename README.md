@@ -1,2 +1,1 @@
-# HollowzzBeta.github.io
-Beta
+# WEBSITE BETA GAMES HERE SOON
